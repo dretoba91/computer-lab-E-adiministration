@@ -1,1 +1,0 @@
-# computer-lab-E-adiministration
